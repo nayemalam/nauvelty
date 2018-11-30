@@ -1,2 +1,2 @@
-# nauvelty
+# Nauvelty
 Nauvelty Clothing Brand 
